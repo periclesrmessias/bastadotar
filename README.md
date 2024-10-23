@@ -1,4 +1,4 @@
-# [Bastadotar](https://wwww.instagram.com/bast.adotar)
+# [Bastadotar](https://www.instagram.com/bast.adotar)
 
 As origens da associação BastAdotar remontam a 12 de outubro de 1999. Nessa data, um grupo de pessoas, na Faculdade de Filosofia e Ciências Humanas – FAFICH /UFMG, realizou protesto contra a matança de aproximadamente 50 gatos (que foram dopados e exterminados nas câmaras de gás do Centro de Zoonose da Prefeitura de BH). Tudo com a participação ativa da então diretoria da própria FAFICH.
 Após o protesto, criou-se o grupo Miau, com a participação de professores, funcionários e alunos, que iniciou um movimento de denúncia de violência contra os animais na UFMG. Dez anos mais tarde, em 2009, foi criado o Grupo de Controle de Zoonose, responsável pelo controle ético da população felina na instituição (através do recolhimento, castração e encaminhamento para adoção). Em dez anos, mais de dois mil animais foram recolhidos e encaminhados para adoção, principalmente através de realização de eventos de adoção.
