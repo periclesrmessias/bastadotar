@@ -1,0 +1,11 @@
+25/10/2024
+- Defined project assessment
+- Inicialized data that is going to be tracked, Medications
+
+
+To do next:
+Define project goals, such as why we are doing this
+
+
+29/10/2024
+-Text added to define goals and how to manage the stock.
